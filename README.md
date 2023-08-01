@@ -1,0 +1,1 @@
+# Redmi_Note_12_TWRP
